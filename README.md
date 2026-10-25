@@ -32,7 +32,7 @@ I'm continuously developing my analytical and technical skills while exploring h
 
 ### 🤝 Let's Connect
 - **LinkedIn:** [Connect with me](https://linkedin.com/in/manya-agarwal-63823b276)
-- **Email:** manya.agarwal203@gmail.com
+- **Email:** manyaagarwal540@gmail.com
 
 ---
 
